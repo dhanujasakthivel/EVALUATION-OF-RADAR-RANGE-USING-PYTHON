@@ -39,7 +39,7 @@ Output
 
 Tabulation
 
-![WhatsApp Image 2025-12-02 at 4 36 06 PM](https://github.com/user-attachments/assets/a20c3a46-bf1a-47cf-81de-db65b35a7fc4)
+![WhatsApp Image 2025-12-04 at 3 43 20 PM](https://github.com/user-attachments/assets/1f5573a6-37ff-4026-aff0-38f71d1d5e27)
 
 
 Result
